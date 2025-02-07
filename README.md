@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Milla-13
+- 👀 I’m interested in changing the world
+- 🌱 I’m currently learning python
+- 📫 How to reach me ... ratabamukundi@gmail.com
+- ⚡ Fun fact: ... I am the NEXT BIG THING.
